@@ -5,4 +5,4 @@ hope everyone likes it!
 
 ## Screenshot
 
-![image](https://github.com/user-attachments/assets/6808f00b-9201-4e2c-8585-62a1ac9556ee)
+![image](https://github.com/user-attachments/assets/c22e0a54-6615-43ff-9a78-075a10ddf53c)
